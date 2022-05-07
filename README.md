@@ -6,11 +6,14 @@
 
 
 ## Doświadczenie
-**Chep Brambles**
+**Chep Brambles**\
 od 2020
-**Davies Turner**
+
+**Davies Turner**\
 2018-2020
-**KWK Borynia**
+
+**KWK Borynia**\
 2016-2018
-**Synuś Mamusi**
+
+**Synuś Mamusi**\
 1989-nadal
