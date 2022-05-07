@@ -1,5 +1,3 @@
-##**Paweł Stanula**##
-
 # Paweł Stanula
 
 
