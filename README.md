@@ -1,6 +1,4 @@
-# stpav.github.io
-
-**Paweł Stanula**
+##**Paweł Stanula**##
 
 # Paweł Stanula
 
